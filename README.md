@@ -59,7 +59,7 @@ Right now, I’m early in this journey. I'm building **career capital** through 
 
 ---
 
-## 🙏 What I’m Looking For
+## What I’m Looking For
 
 What I need most is **mentorship and feedback**:
 
@@ -70,7 +70,7 @@ What I need most is **mentorship and feedback**:
 
 ---
 
-## 🤝 Why I’m Applying to 80,000 Hours
+## Why I’m Applying to 80,000 Hours
 
 I’m not looking for a rigid career plan — I’m looking for clarity, perspective, and connection with people who care about the long-term future of humanity.
 
